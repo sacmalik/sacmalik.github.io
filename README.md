@@ -1,1 +1,0 @@
-# sacmalik.github.io
